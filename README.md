@@ -30,4 +30,5 @@ GND - GND
 
 
 Channel Work From Home 2022 
-https://www.youtube.com/watch?v=g-8yzdu6xXs&t=18s&ab_channel=WorkFromHome2021
+Part #1: https://www.youtube.com/watch?v=kzts18ajP9Q&t=27s&ab_channel=WorkFromHome2021
+Part #2: https://www.youtube.com/watch?v=g-8yzdu6xXs&t=18s&ab_channel=WorkFromHome2021
